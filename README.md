@@ -24,6 +24,7 @@
 
 ------------------------------
 [Meanings]
+
 🟢-Just online int!
 
 💬-Only want to talk to close friends
