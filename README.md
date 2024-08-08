@@ -1,26 +1,28 @@
 |About Me|
 
 -------------
--I go by Percy
+✦I go by Percy
 
--Prounounsz: She/her or He/Him
+✦ She/her or He/Him
 
--Aroace
+✦Aroace
 
--Struggle with receiving affection be patient :3 
+✦Struggle with receiving affection be patient :3 
 
--Int if in same fandom!!
+✦Int if in same fandom!!
 
--Ambivert
+✦Ambivert
 
--I do C+H freely unless with friends
+✦I do C+H freely unless with friends
+
+✦I kin percy so much >_<
 
 ------------------------------
 \Interests\
 
--I am a huge pjo fan
+✦I am a huge pjo fan
 
--Flamingo fan 
+✦Flamingo Fan
 
 ------------------------------
 [Meanings]
