@@ -12,7 +12,7 @@
 
 -Ambivert
 
--I do C+H freely unless with friends
+- do C+H freely unless with friends
 ------------------------------
 \Interests\
 
@@ -25,9 +25,10 @@
 
 💬-Only want to talk to close friends
 
-🎭:Roleplaying or w friends
+🎭+Roleplaying or w friends
 
-⛔- Please Dniuf or Dniucf
+⛔-Please Dniuf or Dniucf
+
 -----------------------------------
 ⚔️🏹🗡⚔️
 Thanksz for reading probs will b changed sooner or latersz :p
