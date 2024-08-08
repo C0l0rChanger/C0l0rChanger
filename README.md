@@ -1,6 +1,5 @@
-|About me|
- https://pin.it/6InpjfwjX
-
+|About Me|
+-------------
 -I go by Percy
 
 -Prounounsz: She/her or He/Him
