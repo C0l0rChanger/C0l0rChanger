@@ -38,5 +38,6 @@
 
 №18+ jokes
 
-№Suçidce jokes
+№Ppl who tell me to off myself (Not even ./js)
 
+№Proshippers
