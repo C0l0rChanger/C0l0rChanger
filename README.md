@@ -34,5 +34,9 @@
 ⛔-Please Dniuf or Dniucf
 
 -----------------------------------
-⚔️🏹🗡⚔️
-Thanksz for reading probs will b changed sooner or latersz :p
+[Dni]
+
+№18+ jokes
+
+№Suçidce jokes
+
