@@ -13,7 +13,8 @@
 
 -Ambivert
 
-- do C+H freely unless with friends
+-I do C+H freely unless with friends
+
 ------------------------------
 \Interests\
 
