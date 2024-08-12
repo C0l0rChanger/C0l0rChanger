@@ -24,6 +24,8 @@
 
 ✦Flamingo Fan
 
+✦Fnaf fan :P
+
 ------------------------------
 [Meanings]
 
@@ -38,8 +40,12 @@
 -----------------------------------
 [Dni]
 
-№18+ jokes
+№18+ jokes + 18+ topics
 
 №Ppl who tell me to off myself (Not even ./js)
 
 №Proshippers
+
+№TADC fans
+
+№PPT Fans
