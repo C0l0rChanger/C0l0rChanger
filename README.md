@@ -1,4 +1,4 @@
-|About Me|
+8|About Me|
 
 -------------
 ✦I go by Percy
@@ -42,7 +42,7 @@
 
 №18+ jokes + 18+ topics
 
-№Ppl who tell me to off myself (Not even ./js)
+№Ppl who tell me to off myself + make jokes abt serious topics 
 
 №Proshippers
 
