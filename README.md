@@ -1,6 +1,7 @@
-8|About Me|
+|About Me|
 
 -------------
+
 ✦I go by Percy
 
 ✦ She/her or He/Him
@@ -17,6 +18,10 @@
 
 ✦I kin percy so much >_<
 
+✦I am a lil senstive so please be mindful of what you say :3
+
+✦IM A HUGEE CAT LOVER + BIRD LOVER
+
 ------------------------------
 \Interests\
 
@@ -25,6 +30,8 @@
 ✦Flamingo Fan
 
 ✦Fnaf fan :P
+
+✦ 6arelyhuman listener 
 
 ------------------------------
 [Meanings]
