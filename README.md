@@ -31,7 +31,7 @@
 
 ✦Fnaf fan :P
 
-✦ 6arelyhuman listener 
+✦ I <3 SYRIS'S SONGZZZ >0<
 
 ------------------------------
 [Meanings]
