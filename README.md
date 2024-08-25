@@ -4,7 +4,6 @@
 
 ✦I go by Percy
 
-✦Aroace
 
 ✦Struggle with receiving affection be patient :3 
 
@@ -20,7 +19,7 @@
 
 ✦IM A HUGEE CAT LOVER + BIRD LOVER
 
-------------------------------
+---------------------------------
 \Interests\
 
 ✦I am a huge pjo fan
@@ -42,7 +41,7 @@
 
 ⛔-Please Dniuf or Dniucf
 
------------------------------------
+------------------------------------
 [Dni]
 
 №18+ jokes + 18+ topics
