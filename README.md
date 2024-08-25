@@ -4,8 +4,6 @@
 
 ✦I go by Percy
 
-✦ She/her or He/Him
-
 ✦Aroace
 
 ✦Struggle with receiving affection be patient :3 
