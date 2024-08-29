@@ -1,4 +1,4 @@
-|About Me|
+*|About Me|
 
 -------------
 
@@ -65,4 +65,4 @@
 
 ✦Disorders. (Dont ask if not very close)
 
--I get sensitive at random times, but always iwsc- :3
+⚠I get sensitive at random times, but always iwsc⚠:3
