@@ -15,7 +15,7 @@
 
 ✦I kin percy so much >_<
 
-✦I am a lil senstive so please be mindful of what you say :3
+
 
 ✦IM A HUGEE CAT LOVER + BIRD LOVER
 
@@ -53,3 +53,16 @@
 №TADC fans
 
 №PPT Fans
+
+-------------------
+[Senstive topics]
+
+✦Ex-Friends (I refuse to talk abt this if not close)
+
+✦Regretavator fandom + Peer pressure fandomsz 
+
+✦Irl stuff (Only ask if very close friends)
+
+✦Disorders. (Dont ask if not very close)
+
+-I get sensitive at random times, but always iwsc- :3
