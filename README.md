@@ -7,15 +7,13 @@
 
 ✦Struggle with receiving affection be patient :3 
 
-✦Int if in same fandom!!
+✦I'm not the best comforter but i'll try to comfort :D
 
 ✦Ambivert
 
 ✦I do C+H freely unless with friends
 
 ✦I kin percy so much >_<
-
-
 
 ✦IM A HUGEE CAT LOVER + BIRD LOVER
 
@@ -24,16 +22,14 @@
 
 ✦I am a huge pjo fan
 
-✦Flamingo Fan
-
-✦Fnaf fan :P
+✦I love history+ educational stuff 
 
 ✦ I <3 SYRIS'S SONGZZZ >0<
 
 ------------------------------
 [Meanings]
 
-🟢-Just online int!
+🟢-Just online, most likely afk
 
 💬-Only want to talk to close friends
 
@@ -54,15 +50,19 @@
 
 №PPT Fans
 
+№Regretavator Fans 
+
+№Peer pressure fans
+
+🏳U can int if in these famdoms if already friends🏳
+
 -------------------
 [Senstive topics]
 
-✦Ex-Friends (I refuse to talk abt this if not close)
+✦Ex-friends.
 
-✦Regretavator fandom + Peer pressure fandomsz 
+✦Irl stuff 
 
-✦Irl stuff (Only ask if very close friends)
 
-✦Disorders. (Dont ask if not very close)
 
-⚠I get sensitive at random times, but always iwsc⚠:3
+
