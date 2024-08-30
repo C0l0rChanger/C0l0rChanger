@@ -1,4 +1,4 @@
-*|About Me|
+*|About Me|*
 
 -------------
 
@@ -18,7 +18,7 @@
 ✦IM A HUGEE CAT LOVER + BIRD LOVER
 
 ---------------------------------
-\Interests\
+[Interests]
 
 ✦I am a huge pjo fan
 
@@ -33,7 +33,7 @@
 
 💬-Only want to talk to close friends
 
-🎭+Roleplaying or w friends
+🎭-Roleplaying or w friends
 
 ⛔-Please Dniuf or Dniucf
 
