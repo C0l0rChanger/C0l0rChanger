@@ -17,6 +17,9 @@
 
 ✦IM A HUGEE CAT LOVER + BIRD LOVER
 
+
+✦*I am a sensitive person so what u say matters.*
+
 ---------------------------------
 [Interests]
 
@@ -54,7 +57,7 @@
 
 №Peer pressure fans
 
-🏳U can int if in these famdoms if already friends🏳
+🏳U can int if in these fandoms if already friends🏳
 
 -------------------
 [Senstive topics]
