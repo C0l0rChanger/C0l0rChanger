@@ -66,6 +66,8 @@
 
 ✦Irl stuff 
 
+-------------------
 
+☆THIS SHOULD BE COMMON SENSE BUT PLZ DONT HARRASS ME NOR COME AT ME W HATE☆
 
-
+To all my friends ; Ty for making me for who i am today, for sticking with me through thick n' thin even if I was a pain to be with I thank you all for being patient enough. 
