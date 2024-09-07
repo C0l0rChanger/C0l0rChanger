@@ -17,6 +17,7 @@
 
 ✦IM A HUGEE CAT LOVER + BIRD LOVER
 
+✦ADHD 
 
 ✦*I am a sensitive person so what u say matters.*
 
