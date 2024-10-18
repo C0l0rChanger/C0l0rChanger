@@ -19,6 +19,8 @@
 
 ✦ADHD 
 
+✦Do not get closer 2 me if i back up from you 
+
 ✦*I am a sensitive person so what u say matters.*
 
 ---------------------------------
