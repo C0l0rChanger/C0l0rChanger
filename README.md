@@ -1,1 +1,3 @@
-https://pin.it/7tTwZY8Td
+▶︎ •၊၊||၊|။||||| 0:10
+
+╰┈➤ More abt me @ prnz page
