@@ -8,7 +8,7 @@
 
  𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼
 
-ADHD, C+H always (if alone ^^), Percy irl trust!!, I can take jokes but I will ignore you if I consider it 2 far, Tiny bit clingy + Attachment/abandonment issues.
+ADHD (Extremely hyper) C+H always (if alone ^^), Percy irl trust!!, I can take jokes but I will ignore you if I consider it 2 far, Tiny bit clingy + Attachment/abandonment issues.
 
  𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼
 
