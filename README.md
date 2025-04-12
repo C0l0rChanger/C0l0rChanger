@@ -4,19 +4,15 @@
  
  𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼
 
- PJO, ETM, YYH, OHSHC
+ I'm in multiple fandoms but im usually cosplaying etm,pjo, or animes 
 
  𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼
+abt me :
 
-ADHD (Extremely hyper) C+H always (if alone ^^), Percy irl trust!!, I can take jokes but I will ignore you if I consider it 2 far, Tiny bit clingy + Attachment/abandonment issues.
+I'm adhd so im extremely hyperactive, I'm usually alone so I always so c+h freely. I 
+don't have dni's any fandom is greeted with open arms. I can take jokes as long as they're not sexual.
 
- 𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼
-
- Regretavator dniuf, Peer pressure dniuf, 18+ dni.
-
-  𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼
-
-I love all my friends!! I dont mind making more, I might be shy to int with you at first but I warm up fast!!!
+  𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚𓇼
 
 🌙 ,, Afk
 
