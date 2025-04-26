@@ -9,8 +9,8 @@
  𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼
 abt me :
 
-I'm adhd so im extremely hyperactive, I'm usually alone so I always so c+h freely. I 
-don't have dni's any fandom is greeted with open arms. I can take jokes as long as they're not sexual.
+I'm adhd so im extremely hyperactive, I'm usually alone so I always do c+h freely. I 
+don't have dni's any fandom is greeted with open arms. I'm usually afk so always whisper to interact with me!
 
   𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚𓇼
 
